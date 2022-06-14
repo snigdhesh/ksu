@@ -39,3 +39,5 @@ https://ccse.kennesaw.edu/cs/programs/mscs.php
 
 Check with chandana and avinash what course work did they take?
 
+Am I eligible for finanical aid/scholar ship/loan?
+
